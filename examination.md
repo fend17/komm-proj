@@ -36,7 +36,7 @@ PM:en lämnas in via Studentportalen och ska ha inkommit senast torsdagen 16e no
 
 PM:en skall vara i PDF-format med tydligt gruppnamn i titeln. Framsidan skall också innehålla samtliga medlemmar i projektgruppen.
 
-Så snart sluttiden för inlämning har passerat och skickar ni ert arbete till ansvarig opponeringsgrupp. Ni förväntas därefter på onsdagseftermiddagen förbereda opponeringen inför torsdagen. 
+Så snart sluttiden för inlämning har passerat och skickar ni ert arbete till ansvarig opponeringsgrupp. Ni förväntas därefter på torsdagseftermiddagen förbereda opponeringen inför fredagen. 
 
 ## Seminariet 
 
